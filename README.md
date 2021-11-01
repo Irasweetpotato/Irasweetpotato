@@ -9,4 +9,5 @@
 Irasweetpotato/Irasweetpotato is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-https://media.giphy.com/media/3o6Zt5eJWfaJEUKYbm/giphy.gif
+
+![yo](https://user-images.githubusercontent.com/93521841/139667007-c1c33308-87f8-47df-8bde-9679cafdbed7.gif)
