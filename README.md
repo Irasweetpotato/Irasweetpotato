@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Chewing gum and Coding ofc 
 - 🌱 I’m currently learning ..JAVA and Python
 - 💞️ I’m looking to collaborate on ..Whatever I feel like 
-- 📫 How to reach me ...https://codepen.io/Ira_sweetpotato and Snap = shira1597
+- 📫 How to reach me ...shira1597
 - 😄 Pronouns: ... She,Her,Gal 
 - ⚡ Fun fact: ... i can touch my nose with my tongue ;)
 - 💖 Perfection ? Do you mean Harry Styles ? 
