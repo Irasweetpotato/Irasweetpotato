@@ -11,6 +11,7 @@ Irasweetpotato/Irasweetpotato is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 
-https://media1.giphy.com/media/xowbqCc2wcrC0/200w.webp?cid=ecf05e47ew9qnkg1z01ztl0sl7ee5ggpmon4ockvv1zx9pum&rid=200w.webp&ct=g
-https://media1.giphy.com/media/xowbqCc2wcrC0/200w.webp?cid=ecf05e47ew9qnkg1z01ztl0sl7ee5ggpmon4ockvv1zx9pum&rid=200w.webp&ct=g
+![hry](https://user-images.githubusercontent.com/93521841/143825062-31e21bc0-e310-4527-ac10-afb8df4eec4e.gif)
 
+
+![1d](https://user-images.githubusercontent.com/93521841/143825083-b2f4d122-17c8-419c-8ec1-0d8bf93e9f69.gif)
