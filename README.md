@@ -5,6 +5,7 @@
 - 📫 How to reach me ...shira1597
 - 😄 Pronouns: ... She,Her,Gal 
 - ⚡ Fun fact: ... i can touch my nose with my tongue ;)
+- 💖Perfection ? Do you mean Harry Styles ?
 <!---
 Irasweetpotato/Irasweetpotato is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
