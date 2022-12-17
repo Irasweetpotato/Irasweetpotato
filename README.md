@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Irasweetpotato
-- 👀 I’m interested in ...Chewing gum and Coding ofc 
+- 👋 Hi, I’m @Ira:)
+- 👀 im not really that good at coding so uh
 - 🌱 I’m currently learning ..JAVA and Python
 - 💞️ I’m looking to collaborate on ..Whatever I feel like 
 - 📫 How to reach me ...shira1597
-- 😄 Pronouns: ... She,Her,Gal 
+- 😄 Pronouns: ... She/her
 - ⚡ Fun fact: ... i can touch my nose with my tongue ;)
 - 💖Perfection ? Do you mean Harry Styles ?
 <!---
